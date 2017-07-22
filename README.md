@@ -3,7 +3,7 @@
 João Vitor de Oliveira    
 Bauru / SP   
 [joao.skr@hotmail.com](joao.skr@hotmail.com)  
-[joaovitor.esy.es](Meu Site)  	
+[http://joaovitor.esy.es](Meu Site)  	
 
 
 ## Resumo Profissional
